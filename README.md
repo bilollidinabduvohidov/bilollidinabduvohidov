@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Bilollidin
+- 👋 Hi, I’m Biloliddin
 - 👀 I’m full stack
 - 💞️ I’m looking to collaborate on ... campaigns and business enterprises
 - 📫 How to reach me ... telegram @khabduvokhidov instagram @khabduvokhidov
